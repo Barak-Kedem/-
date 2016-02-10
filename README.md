@@ -56,19 +56,5 @@ http://www.ipetitions.com/petition/barakkedemvegi
 http://www.ipetitions.com/petition/barakkedemvegi
 http://www.ipetitions.com/petition/barakkedemvegi
 ברק קדם
-http://www.ipetitions.com/petition/barakkedemvegi
-http://www.ipetitions.com/petition/barakkedemvegi
-http://www.ipetitions.com/petition/barakkedemvegi
-ברק קדם
-http://www.ipetitions.com/petition/barakkedemvegi
-http://www.ipetitions.com/petition/barakkedemvegi
-
-http://www.ipetitions.com/petition/barakkedemvegi
-ברק קדם
-http://www.ipetitions.com/petition/barakkedemvegi
-http://www.ipetitions.com/petition/barakkedemvegi
-http://www.ipetitions.com/petition/barakkedemvegi
-ברק קדם
-http://www.ipetitions.com/petition/barakkedemvegi
-http://www.ipetitions.com/petition/barakkedemvegi
-ברק קדם
+http://www.ipetitions.com/pe
+http://www.ipetitions.com/petition/ba
